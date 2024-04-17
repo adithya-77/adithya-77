@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @adithya-77
-- 👀 I’m interested in many things like cars,technology and many more
+- 👀 I’m interested in many things like cars,tech and AI
 - I'm Motivated by challenges
 - 🌱 I’m currently pursuing B-tech Computer Science(AI & ML)
 - 📫 How to reach me: adithyaprakash2003@gmail.com
